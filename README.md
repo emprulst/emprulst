@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @emprulst
 - 👧🏻 from China🇨🇳
-- 👩🏻‍💻 Studying📖  preparing for postgraduate examination
-- 📫 Wechat：Emprulst-
+- 👩🏻‍💻 SVT
+- 📫 Instagram：pizzalynnxh-
 
 <!---
 emprulst/emprulst is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
